@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا واحشني في ليلي ونهاري
+> نور عينيك هو كل أسراري
+> قلبي ينادي من بين نيراني
+> محتاج أضمك يا روحي وحياتي
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
